@@ -1,0 +1,1 @@
+# jo sok hazi feladat nem kell nekunk 
