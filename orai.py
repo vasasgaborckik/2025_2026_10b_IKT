@@ -9,3 +9,13 @@ VALTOZTATASSSSSS TANARUR 2. FELVONAS
 
 
 3. probaaaasssssss
+
+
+
+
+ediddididididididi 
+Erős Antónia
++
+Szellő István
+=
+Erős Pista
